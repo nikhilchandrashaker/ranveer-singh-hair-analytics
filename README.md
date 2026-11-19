@@ -1,1 +1,0 @@
-# ranveer-singh-hair-analytics
